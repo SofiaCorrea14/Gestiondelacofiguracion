@@ -1,3 +1,3 @@
 EJEMPLO GIT
-Contribución realizada por Isabella 🚀
+Contribución realizada por Isabella 
 
